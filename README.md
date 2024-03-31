@@ -1,1 +1,1 @@
-Amazon Clone font paage only
+Amazon Clone font page only
